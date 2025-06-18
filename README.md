@@ -1,1 +1,0 @@
-# Siple-Acadamy-of-Guards
